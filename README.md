@@ -1,0 +1,2 @@
+# The-Trance-Mafia
+" The Trance Mafia " started his musical journey back in 2010 as a passion and dedication about music. He used to remix Bollywood songs, he started his career by remixing a super melodies[ Aadat - Atif Aslam ]. Getting a quite good response on his very first track " The Trance Mafia " is popularly known as a versatile artist because of his variations in his every single Track ,Now  He made original Tracks Its Hits Track Like , Glich , Heartbreak, Banger The Trance Mafia  Known Artist whit his own unique signature style Of EDM Music.
